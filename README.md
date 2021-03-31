@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Omar!
+- 👀 I’m interested in FiveM.
+- 🌱 I’m learning about ESX.
+- 💬 And you can reach me via Discord: dogwater#2252
